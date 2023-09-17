@@ -1,0 +1,1 @@
+# Cognify-technologies_internship
